@@ -1,1 +1,1 @@
-Tienes quie inicar sesion adnhiuabgfeoieq
+Tienes quie inicar sesion para jugar al juego blablablabla
